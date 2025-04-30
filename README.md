@@ -31,6 +31,22 @@ ${{\color{#ffb5ca}\small{\texttt{19 yr. old proshipper + darkselfshipper}}}}$
 <br>
 <BR>
 <BR>
+<p align="center"> ${{\color{#ffb5ca}\large{\texttt{˗ˏˋ ★ ˎˊ˗ DNI ˗ˏˋ ★ ˎˊ˗}}}}$ 
+<BR>
+${{\color{#ffb5ca}\small{\texttt{Minors (I am an ADULT)}}}}$ 
+<BR>
+${{\color{#ffb5ca}\small{\texttt{Antis, yall js don't agree w me}}}}$ 
+<BR>
+${{\color{#ffb5ca}\small{\texttt{People here to just annoy me}}}}$ 
+<BR>
+${{\color{#ffb5ca}\small{\texttt{Preferably: People who will tell me to kms / People who are just here to try and make me feel bad}}}}$ 
+<BR>
+  <BR>
+<div align="center">
+<img width="3%" src="https://github.com/PinkSt4r/PinkSt4r/blob/main/pinkheart.png">     <img width="3%" src="https://github.com/PinkSt4r/PinkSt4r/blob/main/pinkheart.png">     <img width="3%" src="https://github.com/PinkSt4r/PinkSt4r/blob/main/pinkheart.png">     <img width="3%" src="https://github.com/PinkSt4r/PinkSt4r/blob/main/pinkheart.png">     <img width="3%" src="https://github.com/PinkSt4r/PinkSt4r/blob/main/pinkheart.png">     <img width="3%" src="https://github.com/PinkSt4r/PinkSt4r/blob/main/pinkheart.png">     <img width="3%" src="https://github.com/PinkSt4r/PinkSt4r/blob/main/pinkheart.png">     <img width="3%" src="https://github.com/PinkSt4r/PinkSt4r/blob/main/pinkheart.png">     <img width="3%" src="https://github.com/PinkSt4r/PinkSt4r/blob/main/pinkheart.png">     <img width="3%" src="https://github.com/PinkSt4r/PinkSt4r/blob/main/pinkheart.png">     <img width="3%" src="https://github.com/PinkSt4r/PinkSt4r/blob/main/pinkheart.png">     <img width="3%" src="https://github.com/PinkSt4r/PinkSt4r/blob/main/pinkheart.png">   <img width="3%" src="https://github.com/PinkSt4r/PinkSt4r/blob/main/pinkheart.png">     <img width="3%" src="https://github.com/PinkSt4r/PinkSt4r/blob/main/pinkheart.png">     <img width="3%" src="https://github.com/PinkSt4r/PinkSt4r/blob/main/pinkheart.png">     <img width="3%" src="https://github.com/PinkSt4r/PinkSt4r/blob/main/pinkheart.png">      <img width="3%" src="https://github.com/PinkSt4r/PinkSt4r/blob/main/pinkheart.png">     <img width="3%" src="https://github.com/PinkSt4r/PinkSt4r/blob/main/pinkheart.png">      <img width="3%" src="https://github.com/PinkSt4r/PinkSt4r/blob/main/pinkheart.png">     <img width="3%" src="https://github.com/PinkSt4r/PinkSt4r/blob/main/pinkheart.png">     <img width="3%" src="https://github.com/PinkSt4r/PinkSt4r/blob/main/pinkheart.png">     <img width="3%" src="https://github.com/PinkSt4r/PinkSt4r/blob/main/pinkheart.png">     <img width="3%" src="https://github.com/PinkSt4r/PinkSt4r/blob/main/pinkheart.png">     <img width="3%" src="https://github.com/PinkSt4r/PinkSt4r/blob/main/pinkheart.png">     
+
+<BR>
+<BR>
 <p align="center"> ${{\color{#ffb5ca}\large{\texttt{˗ˏˋ ★ ˎˊ˗ Names ˗ˏˋ ★ ˎˊ˗}}}}$ 
 <BR>
 ${{\color{#ffb5ca}\small{\texttt{Vinn}}}}$ 
@@ -183,5 +199,16 @@ ${{\color{#ffb5ca}\small{\texttt{Ponyboy x Johnny (The Outsiders)}}}}$
   <BR>
 <BR>
 <BR>
+<p align="center"> ${{\color{#ffb5ca}\large{\texttt{˗ˏˋ ★ ˎˊ˗ Other ˗ˏˋ ★ ˎˊ˗}}}}$ 
+<br>
+<BR>
+${{\color{#ffb5ca}\small{\texttt{Yes, I have had trauma, this is my way of coping, idgaf if you don't like it, this helps me}}}}$ 
+  <BR>
+<p sub align="center"> ${{\color{#ffb5ca}{{˗ˏˋ ★ ˎˊ˗ Friends ˗ˏˋ ★ ˎˊ˗}}}}$ 
+<BR>
+  <a href="https://https://github.com/Loki1387">Loki</a>
+
+${{\color{#ffb5ca}\small{\texttt{I need to add more...}}}}$ 
+
 
 ${{\color{#ffb5ca}\small{\texttt{If you've made it this far have an awesome day / night / afternoon!}}}}$ 
