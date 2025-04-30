@@ -204,9 +204,12 @@ ${{\color{#ffb5ca}\small{\texttt{Ponyboy x Johnny (The Outsiders)}}}}$
 <BR>
 ${{\color{#ffb5ca}\small{\texttt{Yes, I have had trauma, this is my way of coping, idgaf if you don't like it, this helps me}}}}$ 
   <BR>
+    <a href="proshipresources.carrd.co">Proship Info</a>
 <p sub align="center"> ${{\color{#ffb5ca}{{˗ˏˋ ★ ˎˊ˗ Friends ˗ˏˋ ★ ˎˊ˗}}}}$ 
 <BR>
   <a href="https://https://github.com/Loki1387">Loki</a>
+
+
 
 ${{\color{#ffb5ca}\small{\texttt{I need to add more...}}}}$ 
 
