@@ -11,7 +11,10 @@ ${{\color{#ffb5ca}\small{\texttt{19 yr. old proshipper + darkselfshipper}}}}$
 <BR>
   ${{\color{#ffb5ca}\small{\texttt{Minors get out, I do not want to interact with you}}}}$ 
 <BR>
+<div align="center">
+
   ![](https://komarev.com/ghpvc/?username=PinkSt4re&color=ff9b9b)
+</div>
 <BR>
 <BR>
 <a href="skullcruncher.straw.page">Straw Page</a> 
