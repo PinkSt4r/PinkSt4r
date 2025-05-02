@@ -28,6 +28,8 @@ ${{\color{#ffb5ca}\small{\texttt{19 yr. old proshipper + darkselfshipper}}}}$
   <a href="https://users.smartgb.com/g/g.php?a=s&i=g19-01970-f1#write">Guestbook</a>
   //
   <a href="https://www.youtube.com/@Magg0TZD3AD">Youtube</a>
+  //
+    <a href="https://en.pronouns.page/@cheesecheezzzz">Other Pronouns...</a>
 //
   <a href="https://docs.google.com/presentation/d/1Z0PDvsiWDJC4uoQQbQJMI78yD6F9kFzPWUEchXY37Qc/edit?usp=sharing">Phineas Gage info (wip)</a>
 
