@@ -104,6 +104,7 @@ ${{\color{#ffb5ca}\small{\texttt{Sodapop (The Outsiders)}}}}$
 <BR>
   ${{\color{#ffb5ca}\small{\texttt{Curly (Mouthwashing)}}}}$ 
 <BR>
+    ${{\color{#ffb5ca}\small{\texttt{Radford (Spooky Month)}}}}$ 
 <br>
 <BR>
 <BR>
