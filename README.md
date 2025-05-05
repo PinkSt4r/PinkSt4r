@@ -19,7 +19,7 @@ ${{\color{#ffb5ca}\small{\texttt{19 yr. old proshipper + darkselfshipper}}}}$
 <BR>
 <a href="skullcruncher.straw.page">Straw Page</a> 
   //
-<a href="https://www.tumblr.com/skullcrunch3r">Tumblr (Cannot post currently)</a>
+<a href="https://www.tumblr.com/skullcrunch3r">Tumblr</a>
 //
   <a href="pin.it/32dCx60em">Xenogenders</a>
   //
