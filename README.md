@@ -17,7 +17,7 @@ ${{\color{#ffb5ca}\small{\texttt{19 yr. old proshipper + darkselfshipper}}}}$
 </div>
 <BR>
 <BR>
-<a href="skullcruncher.straw.page">Straw Page</a> 
+<a href="https://skullcrunch3r.straw.page/">Straw Page</a> 
   //
 <a href="https://www.tumblr.com/skullcrunch3r">Tumblr</a>
 //
