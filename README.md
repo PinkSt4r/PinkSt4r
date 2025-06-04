@@ -99,6 +99,8 @@ ${{\color{#ffb5ca}\small{\texttt{Sodapop (The Outsiders)}}}}$
   ${{\color{#ffb5ca}\small{\texttt{Curly (Mouthwashing)}}}}$ 
 <BR>
     ${{\color{#ffb5ca}\small{\texttt{Radford (Spooky Month)}}}}$ 
+<BR>
+ ${{\color{#ffb5ca}\small{\texttt{Gregoriah (Regretevator)}}}}$ 
 <br>
 <BR>
 <BR>
